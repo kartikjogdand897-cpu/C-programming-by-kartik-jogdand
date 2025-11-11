@@ -41,4 +41,4 @@ To grow into a **Future-Ready Tech Innovator**, contributing to groundbreaking p
 
 ---
 
-⭐ *"Blending Technology & Intelligence to Build Future-Ready Solutions."*
+⭐ *"Blending Technology & Intelligence to Build Future-Ready Solutions.""*
